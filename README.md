@@ -1,2 +1,0 @@
-# trin-my-self
-traine
